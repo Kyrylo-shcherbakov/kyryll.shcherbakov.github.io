@@ -1,2 +1,0 @@
-# kyryll.shcherbakov
- 
